@@ -4,7 +4,7 @@ This page currently displays my CV.
 
 I can be reached via [email](mailto:rudradeepmukherjee.mukherjee@gmail.com).
 
-Links: [Google Scholar](https://scholar.google.com/citations?user=63NPgSoAAAAJ&hl=en) | [LinkedIn](linkedin.com/in/rudramukh)
+Links: [Google Scholar](https://scholar.google.com/citations?user=63NPgSoAAAAJ&hl=en) | [LinkedIn](https://linkedin.com/in/rudramukh)
 
 Thank you for visiting. 
 
